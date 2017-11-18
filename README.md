@@ -1,2 +1,0 @@
-# Knuckles-Knuckles-KnucklesLyrics
-KNUCKLES
